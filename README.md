@@ -1,1 +1,0 @@
-# sinhSlumbering.github.io
